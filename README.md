@@ -42,14 +42,14 @@ Lista de amigo oculto da família
 - **Umidificador/Difusor**
 
 ## Ié
-1. **Travesseiro**: daqueles do Dia a Dia.
-2. **Roseira**: branca, cor-de-rosa, vermelha (viveiros ao lado do Shopping Jardim Botânico).
-3. **Frigideira pequena lilás** (frita ovo): Loja Mundial ou Atacadão Dia a Dia.
-4. **Cuscuzeiro pequeno**: Atacadão Dia a Dia.
-5. **Carrinho de compra**: Loja Mundial.
-6. **Batom nude escuro**: O Boticário.
-7. **Manta microfibra casal azul**: Atacadão Dia a Dia.
-8. **Creme Cicabio (20 ml)**: Na Rosário (perto do Big Box, da QI 23, no SMDB).
+- **Travesseiro**: daqueles do Dia a Dia.
+- **Roseira**: branca, cor-de-rosa, vermelha (viveiros ao lado do Shopping Jardim Botânico).
+- **Frigideira pequena lilás** (frita ovo): Loja Mundial ou Atacadão Dia a Dia.
+- **Cuscuzeiro pequeno**: Atacadão Dia a Dia.
+- **Carrinho de compra**: Loja Mundial.
+- **Batom nude escuro**: O Boticário.
+- **Manta microfibra casal azul**: Atacadão Dia a Dia.
+- **Creme Cicabio (20 ml)**: Na Rosário (perto do Big Box, da QI 23, no SMDB).
 
 ## Laura
 - **Peso de porta**: [Link](https://br.shp.ee/NeBNCw4)
@@ -63,3 +63,13 @@ Lista de amigo oculto da família
 - **Fone Shopee**: [Link](https://br.shp.ee/3G4meZN)
 - **Panela de pressão elétrica (4L)**
 - **Protetor em bastão Ollie cor #30**: [Link](https://meuollie.com.br/products/protetor-solar-bastao-com-cor-fps95?variant=40294280822826&country=BR&currency=BRL&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic&utm_source=google&utm_medium=cpc&utm_campaign=Ollie_PerformanceMax_CustomerAcquisition&gad_source=1&gclid=Cj0KCQiAsOq6BhDuARIsAGQ4-ziM17KZYTUkvFur1O30q-MgCLW-DBseAGykH7u9ZQ_7c4pDqn5rr-0aAnQlEALw_wcB)
+
+## Isabella
+
+- **Sabonetes, cremes, body splashs**
+- **Pó compacto Vult B cor 4**
+- **Lápis kajal para olhos preto**
+- **Porta mantimentos**
+- **Puff baú**
+- **Caixinha de joias (bijus)**
+- **Organizadores de louça**
