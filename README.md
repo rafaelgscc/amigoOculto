@@ -20,14 +20,14 @@ Lista de amigo oculto da família
 - **Gloss Carmed**
 
 ## Nathiara
-- **Caixa de som com 2 microfones karaokê Bluetooth**: [Link](https://br.shp.ee/CJcfmxg/)
+- **Caixa de som com 2 microfones karaokê Bluetooth**: [Link](https://br.shp.ee/CJcfmxg)
 - **Blusinhas tamanho M**:
   - [Exemplo 1](https://www.lojasrenner.com.br/p/-/A-897047275-br.lr?sku=897656572)
   - [Exemplo 2](https://www.lojasrenner.com.br/p/-/A-812466199-br.lr?sku=927440001)
   - [Exemplo 3](https://br.shp.ee/zXAEjVd)
   - [Exemplo 4](https://br.shp.ee/rDT39A7)
   - [Exemplo 5](https://br.shp.ee/NXHhqdx)
-  - [Exemplo 6](https://br.shp.ee/dNZCBTj/)
+  - [Exemplo 6](https://br.shp.ee/gXMXrEu)
 - **Porta cartões e documentos**: [Link](https://www.santalolla.com.br/porta-cartao-material-lizard-areia-2-1352068/p?skuId=893390)
 
 ## Arthur
