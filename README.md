@@ -33,6 +33,8 @@ Lista de amigo oculto da família
 ## Arthur
 - **Cápsulas de café Nespresso**
 - **Camisa ou boné Seu Loza**
+- **Grip para Crossfit**
+- **Bolsa porta carregar vinho**
 
 ## Cacá
 - **Sabonetes**: O Boticário, L'Occitane
@@ -73,3 +75,14 @@ Lista de amigo oculto da família
 - **Puff baú**
 - **Caixinha de joias (bijus)**
 - **Organizadores de louça**
+
+## João Miguel
+
+- **livros infantis**
+- **livros de bebês**
+- **sapatos, chinelo, sandálias tam 21/22**
+- **pijama tam 2**
+- **tapete de banho antiderrapante**
+- **torre de aprendizagem montessoriana**
+- **Brinquedos diferentes como bolas, bonecos, dinossauros**
+- **Panelas e equipamentos de limpeza (rodo, vassoura, pá)**
