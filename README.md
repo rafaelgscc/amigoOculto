@@ -111,3 +111,7 @@ Lista de amigo oculto da família
 ## Bira
 
 [Os presentes de amigo oculto do Bira se encontram aqui](https://linktr.ee/nataldobira)
+
+## Yuri
+
+- Fones de ouvido intra auricular (Aqueles que entram no ouvido) com fio
